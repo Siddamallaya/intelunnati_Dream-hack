@@ -106,11 +106,11 @@ efforts, especially aided by the mobile platform.
 platforms, it is significant to make a balance among speed...
 
 
+  
 
 
+![Screenshot (24)](https://github.com/Siddamallaya/intelunnati_Dream-hack/assets/139435973/e6b98bcb-c675-4019-b662-d377a9f52325)
 
-
-[Doc3.docx](https://github.com/Siddamallaya/intelunnati_Dream-hack/files/12046359/Doc3.docx)
 
 
 
