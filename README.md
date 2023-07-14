@@ -111,6 +111,9 @@ platforms, it is significant to make a balance among speed...
 
 ![Screenshot (24)](https://github.com/Siddamallaya/intelunnati_Dream-hack/assets/139435973/e6b98bcb-c675-4019-b662-d377a9f52325)
 
+![Screenshot (25)](https://github.com/Siddamallaya/intelunnati_Dream-hack/assets/139435973/53b3c09c-e61b-4f79-bff8-fcc99f4075cf)
+
+
 
 
 
