@@ -104,3 +104,16 @@ efforts, especially aided by the mobile platform.
 
 • Network optimization. Given specific applications and
 platforms, it is significant to make a balance among speed...
+
+
+
+
+
+
+[Doc3.docx](https://github.com/Siddamallaya/intelunnati_Dream-hack/files/12046359/Doc3.docx)
+
+
+
+
+
+
